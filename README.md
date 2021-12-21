@@ -1,0 +1,1 @@
+# Patika_odev_vucutkitle_indeks
